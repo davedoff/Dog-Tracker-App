@@ -1,4 +1,4 @@
 # Dog-Tracker-App
-https://www.youtube.com/watch?v=c4wheKYBdvg&ab_channel=MartinSten
+https://youtu.be/c4wheKYBdvg
 
 Update coming soon.
